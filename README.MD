@@ -6,8 +6,8 @@
 
 👧🏻Pronouns: she/her
 
- We like doing heart- Something you liked about class❤
+ ❤ We like doing heart- Something you liked about class
  
- Fart- Something that you didn't understand or didn't like💨
+ 💨 Fart-  Something that you didn't understand or didn't like
  
- Shopping cart- Something you're looking foward to🛒
+🛒 Shopping cart- Something you're looking foward to
