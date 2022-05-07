@@ -2,7 +2,7 @@
 
 💼 Graduated from Code Chica ++ 
 
-💻It's very fun and interesting and is a good fit for you especially if your tech savy! 
+💻 I enjoy coding, It's very fun and interesting and is a good fit for you especially if your tech savy! 
 
 👧🏻Pronouns: she/her
 
